@@ -4,9 +4,9 @@
 - **Company Name:** Plombiers d'intervention rapide SARL
 - **Directory:** plombiers_d_intervention_rapide_sarl
 - **Address/Contact:** 
-  - Chaque plombier de notre �quipe b�n�ficie des qualifications et certifications n�cessaires...
+  - Chaque plombier de notre ééééquipe bénéficie des qualifications et certifications nécessaires...
   - 
-  - Page � Entrepreneuriat
+  - Page é Entrepreneuriat
   - 
   - borne 10 tradex village , Douala, Cameroon
   - 
